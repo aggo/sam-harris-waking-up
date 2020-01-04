@@ -1,4 +1,4 @@
-I'd like to introduce a few philosophical concepts that might make it easier to understand some of the things I've been saying about consciousness and the mind because there have been a few signs of confusion. I'll read you a couple of emails that have come in.
+I'd like to introduce a few **philosophical concepts** that might make it easier to understand some of the things I've been saying about consciousness and the mind because there have been a few signs of confusion. I'll read you a couple of emails that have come in.
 
 Here's the first:
 "In a number of sessions, Sam talks about phenomena as only occurring in consciousness. Of course, that is where the experience of these phenomena occur, they couldn't occur anywhere else, but sometimes Sam appears to be saying that this is the only place where the phenomenon actually exists. I'm sure that's not what he means, but it does sometimes sound like he's saying that I think this could confuse or alienate some people."
